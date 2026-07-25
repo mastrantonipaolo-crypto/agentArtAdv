@@ -54,7 +54,7 @@ Il sinodo oggi più esteso resta la Chiesa dei Genuini Cristiani Ortodossi di Gr
 
 ### Numeri
 
-Le stime disponibili collocano i vecchio-calendaristi in Grecia tra 500.000 e 800.000 fedeli, con oltre 200 sacerdoti e circa 120 parrocchie. Su scala mondiale, alcune fonti stimano circa un milione di aderenti complessivi al movimento "True Orthodox"/vecchio-calendarista, ripartiti approssimativamente tra vecchio-calendaristi greci (circa 0,86 milioni) e le altre giurisdizioni non greche riconducibili alla stessa area (circa 0,85 milioni secondo lo stesso conteggio). Sono stime aggregate, senza censimento statale indipendente: la cifra reale resta incerta, aggravata dalla frammentazione stessa del movimento in più sinodi rivali.
+Le stime disponibili collocano i vecchio-calendaristi in Grecia tra 500.000 e 800.000 fedeli, con oltre 200 sacerdoti e circa 120 parrocchie. Su scala mondiale le fonti divergono più marcatamente: alcune parlano di circa un milione di aderenti complessivi al movimento "True Orthodox"/vecchio-calendarista, mentre altre compilazioni statistiche (2020) riportano cifre distinte e non chiaramente sommabili fra loro — circa 0,86 milioni per i soli vecchio-calendaristi greci e circa 0,85 milioni per le altre giurisdizioni "True Orthodox" non greche riconducibili alla stessa area — che, se sommate, supererebbero il milione e mezzo. Sono stime aggregate, senza censimento statale indipendente e senza un metodo di conteggio comune: la cifra reale resta incerta, aggravata dalla frammentazione stessa del movimento in più sinodi rivali.
 
 ### Il caso romeno: gli Stiliști
 
